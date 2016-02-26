@@ -1,0 +1,2 @@
+***Something popular that is a bore***
+I am annoyed by gender-reveal parties, which I have to go to occassionally. No one will ever care about something as mundane as the gender of your child as much as you yourself might. Also, the whole imposed-gender-roles-before-the-kid-is-born-and-I-bet-you-want-son-etc-etc thing makes me crazy. 
