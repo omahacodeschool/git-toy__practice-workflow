@@ -1,3 +1,3 @@
 Who is your favorite entertainer?
 
-Jim Gaffigan
+Jim Gaffigan, 7 July 1966
